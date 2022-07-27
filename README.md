@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @xainpro
+- 👀 I’m interested in AI, IT, Peoples Management. 
+- 🌱 I’m currently learning Business management, GO
+- 📫 How to reach me xain.pro@gmail.com
